@@ -1,0 +1,3 @@
+# Pink Yelan
+
+link on AGMG : https://discord.com/channels/971945032552697897/995556191419764838/1074063414680358982

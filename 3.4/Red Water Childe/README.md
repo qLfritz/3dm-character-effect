@@ -1,0 +1,3 @@
+# Red Water Childe
+
+link on AGMG : https://discord.com/channels/971945032552697897/995556191419764838/1078945646402342983
